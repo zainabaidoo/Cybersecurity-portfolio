@@ -17,4 +17,4 @@ Aspiring SOC Analyst with hands-on experience in:
 - LetsDefend
 
 ## Contact
-LinkedIn: https://www.linkedin.com/in/YOURNAME
+LinkedIn: (https://www.linkedin.com/in/zainab-aidoo-623669406/)
